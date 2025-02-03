@@ -19,9 +19,9 @@
 3. Mainstream Older Singles/Couples – Represent a growing segment.
 
 ### Business Recommendations
-✅ Focus marketing efforts on premium customers to maximize high-value purchases.
-✅ Promote bestselling products through targeted campaigns.
-✅ Introduce loyalty incentives for budget customers to encourage repeat purchases.
+1. ✅ Focus marketing efforts on premium customers to maximize high-value purchases.
+2. ✅ Promote bestselling products through targeted campaigns.
+3. ✅ Introduce loyalty incentives for budget customers to encourage repeat purchases.
 
 #### 🚀 This analysis helps businesses make data-driven marketing decisions!
 
